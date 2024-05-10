@@ -1,2 +1,0 @@
-# mula
-I tink
